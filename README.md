@@ -1,0 +1,1 @@
+# Android-galaxy-s10-
